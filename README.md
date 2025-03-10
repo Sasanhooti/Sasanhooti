@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Sasanhooti
-- 👀 I’m interested in to helpful 
+- 👀 I’m interested in to I am helpful 
 - 🌱 I’m currently learning python and ...
 - 📫 How to reach me sasanhooti0@gmail.com 
 - 😄 Pronouns: ...
